@@ -1,6 +1,6 @@
- ![](https://komarev.com/ghpvc/?username=xelxmyr&label=⾕&color=ff7274) 
+ ![](https://komarev.com/ghpvc/?username=xelxmyr&label=⾕&color=90b9c5) 
 
-![566A9131-3208-4F17-8993-EDAEA65DE2B2](https://github.com/user-attachments/assets/42c536d3-7032-45c4-88b2-fb77f999c86c)
+![DFBA6B11-104F-448D-BF8E-FB35D3FBA343](https://github.com/user-attachments/assets/80326310-eb95-4533-a415-ebf342debcfa)
 
 
 
